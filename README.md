@@ -1,1 +1,0 @@
-# atividade_pratica_descomplica
